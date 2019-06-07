@@ -1,1 +1,1 @@
-# GeogW12Example.github.io
+Map of My Favorite Destionations
